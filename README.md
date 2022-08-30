@@ -1,4 +1,4 @@
-### Hi there, I am Albert 👋
+### Hi there, I'm Albert 👋
 
 ## I love to learn, code and produce music!
 
