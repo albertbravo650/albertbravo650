@@ -6,4 +6,4 @@
 - 🌱 I’m currently learning MERN
 - 💬 Ask me about anything (especially music production)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can make a full beat in less than 30 minutes
+- ⚡ Fun fact: I can make a full beat in less than 30 minutes, almost any genre
